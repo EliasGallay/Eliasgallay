@@ -8,4 +8,4 @@
 - 📫 How to reach me: Elias Gallay.
 - 😄 Pronouns: He.
 - ⚡ Fun fact: .
-asd
+
